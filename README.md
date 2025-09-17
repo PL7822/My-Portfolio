@@ -1,4 +1,4 @@
-# Pritam Lendingale Portfolio
+# Pritam Lendale Portfolio
 
 Welcome to my personal portfolio website!  
 Here, you'll find information about me, my skills, projects, and how to get in touch.
