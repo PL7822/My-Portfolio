@@ -59,5 +59,3 @@ If you want to reach me:
 
 All content (designs, images, text) © Pritam Lendingale. All rights reserved.
 
-
-![Pritam](https://1drv.ms/i/c/5ad8d85c968fcba4/EaObPXePmH9ElcRSDrO6Ux4Be8SM9FVsgEHWsW8xlW3LcQ?e=p0VH9A)
